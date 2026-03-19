@@ -1,1 +1,0 @@
-# iscgonzalez.github.io
